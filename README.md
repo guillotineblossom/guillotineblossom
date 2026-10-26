@@ -1,7 +1,9 @@
-## Hi there 👋
+ <p align="center">
+  <img src="e8a9ngmgdi4e1.png" width="400" alt="Image">
+</p>
 
-<!--
-**guillotineblossom/guillotineblossom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+hi gui
 
 Here are some ideas to get you started:
 
