@@ -7,11 +7,9 @@
 
 𝄞⨾ hi, im ventiseiv/shuriken!
 
-𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, ...
+𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, steven universe ...
 
-𝄞⨾ characters i heart: shuriken, rocket, slingshot, larry&lawrie, bea, mina, ryo yamada, hitori gotoh, hiroi kikuri, lucario ^_^
-
-𝄞⨾ please int im a lonely bum ok... wti appreciated !
+𝄞⨾ characters i heart: shuriken, rocket, slingshot, larry&lawrie, bibi, melodie, bea, mina, ryo yamada, hitori gotoh, hiroi kikuri
 
 
 byi: 
@@ -19,5 +17,7 @@ byi:
 ♫⨾ i might leave all of a sudden/without saying anything if im getting a headache or really really bored/busy sorri
 
 ♫⨾ im very shy, i will rarely interact first. i might come off as cold also :sweats
+
+♫⨾ wti appreciated
 
 ♫⨾ i have a certain way of joking. please tell me if im making you uncomfortable in any way.
