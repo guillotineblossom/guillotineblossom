@@ -3,31 +3,34 @@
 </p>
 <p align="center">
   <img src="1000001065-removebg-preview.png" width="200">
-  
+</p>
+
 <details>
-<summary>info ab me</summary>
+<summary><div align="center">info ab me</div></summary>
  
 <p align="center">
 𝄞⨾ hio, im ventiseiv/shuriken!<br><br>
 𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, steven universe, formula1, ...<br><br>
 𝄞⨾ characters i heart: shuriken, rocket, slingshot, larry&lawrie, bibi, melodie, bea, mina, ryo yamada, hitori gotoh, hiroi kikuri<br><br>
 𝄞⨾ i am shuriken irl ok
-</small></p>
+</p>
 
 </details>
 
 
 <details>
-<summary>byi</summary>
+<summary><div align="center">byi</div></summary>
 
-♫⨾ i might leave all of a sudden/without saying anything if im getting a headache or really really bored/busy sorri
+<p align="center">
+♫⨾ i might leave all of a sudden/without saying anything if im getting a headache or really really bored/busy sorri<br><br>
 
-♫⨾ im very shy, i will rarely interact first. i might come off as cold also :sweats
+♫⨾ im very shy, i will rarely interact first. i might come off as cold also :sweats<br><br>
 
-♫⨾ wti appreciated
+♫⨾ wti appreciated<br><br>
 
-♫⨾ other shuri kins iwc pls
+♫⨾ other shuri kins iwc pls<br><br>
 
 ♫⨾ i have a certain way of joking. please tell me if im making you uncomfortable in any way.
+</p>
 
 </details>
