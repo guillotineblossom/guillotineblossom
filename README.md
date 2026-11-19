@@ -21,16 +21,18 @@
 <details>
 <summary><div align="center">byi</div></summary>
 
-<p align="center">
-♫⨾ i might leave all of a sudden/without saying anything if im getting a headache or really really bored/busy sorri<br><br>
+<div align="center">
 
-♫⨾ im very shy, i will rarely interact first. i might come off as cold also :sweats<br><br>
+♫⨾ i might leave all of a sudden/without saying anything if im getting a headache or really really bored/busy sorri
 
-♫⨾ wti appreciated<br><br>
+♫⨾ im very shy, i will rarely interact first. i might come off as cold also :sweats
 
-♫⨾ other shuri kins iwc pls<br><br>
+♫⨾ wti appreciated
+
+♫⨾ other shuri kins iwc pls
 
 ♫⨾ i have a certain way of joking. please tell me if im making you uncomfortable in any way.
-</p>
+
+</div>
 
 </details>
