@@ -3,16 +3,24 @@
 </p>
 <p align="center">
   <img src="1000001065-removebg-preview.png" width="200">
-</p>
 
-𝄞⨾ hi, im ventiseiv/shuriken!
+ </p>
+<details>
+<summary>info ab me</summary>
 
-𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, steven universe ...
+𝄞⨾ hio, im ventiseiv/shuriken!
+
+𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, steven universe, formula1, ...
 
 𝄞⨾ characters i heart: shuriken, rocket, slingshot, larry&lawrie, bibi, melodie, bea, mina, ryo yamada, hitori gotoh, hiroi kikuri
 
+𝄞⨾ i am shuriken irl ok
 
-byi: 
+</details>
+
+</p>
+<details>
+<summary>byi</summary>
 
 ♫⨾ i might leave all of a sudden/without saying anything if im getting a headache or really really bored/busy sorri
 
@@ -20,4 +28,8 @@ byi:
 
 ♫⨾ wti appreciated
 
+♫⨾ other shuri kins iwc pls
+
 ♫⨾ i have a certain way of joking. please tell me if im making you uncomfortable in any way.
+
+</details>
