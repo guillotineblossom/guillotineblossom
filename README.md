@@ -3,22 +3,20 @@
 </p>
 <p align="center">
   <img src="1000001065-removebg-preview.png" width="200">
-
- </p>
+  
 <details>
 <summary>info ab me</summary>
-
-𝄞⨾ hio, im ventiseiv/shuriken!
-
-𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, steven universe, formula1, ...
-
-𝄞⨾ characters i heart: shuriken, rocket, slingshot, larry&lawrie, bibi, melodie, bea, mina, ryo yamada, hitori gotoh, hiroi kikuri
-
+ 
+<p align="center">
+𝄞⨾ hio, im ventiseiv/shuriken!<br><br>
+𝄞⨾ fandoms/interests: p!, brawlstars, bocchi the rock!, pokemon, steven universe, formula1, ...<br><br>
+𝄞⨾ characters i heart: shuriken, rocket, slingshot, larry&lawrie, bibi, melodie, bea, mina, ryo yamada, hitori gotoh, hiroi kikuri<br><br>
 𝄞⨾ i am shuriken irl ok
+</small></p>
 
 </details>
 
-</p>
+
 <details>
 <summary>byi</summary>
 
